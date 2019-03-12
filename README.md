@@ -14,6 +14,8 @@ WARZONE RAT 1.71 Native C++ Remote Administration Trojan CRACKED by UNKNOWN
 - Upload Files
 - Execute Files
 
+https://www.youtube.com/watch?v=RjxbMvQciMo
+
 <img src="https://i.ibb.co/P4KFrMF/thread.png"/>
 
 https://youtu.be/RjxbMvQciMo
