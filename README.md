@@ -16,4 +16,4 @@ WARZONE RAT 1.71 Native C++ Remote Administration Trojan CRACKED by UNKNOWN
 
 <img src="https://i.ibb.co/P4KFrMF/thread.png"/>
 
-<iframe width="640" height="400" src="https://www.youtube.com/embed/RjxbMvQciMo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+https://youtu.be/RjxbMvQciMo
